@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EceniRising
-- 👀 I'm an author, podcaster and regenerative smallholder
+- 👀 I'm a novelist, podcaster and regenerative smallholder
 - 🌱 I’m currently learning how best to craft a future we'd be proud to leave to the generations that follow us
 - 💞️ I’m looking to collaborate on Plurality and all that arises from it 
 - 📫 How to reach me: here will do 
